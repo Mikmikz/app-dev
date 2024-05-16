@@ -13,11 +13,11 @@ Throughout the series, the characters face challenges, conflicts, and moral dile
 
 #### Characters INF
 - **Characters INFO:**
-  - [N1]:[Souchi](https://mydramalist.com/people/681-eguchi-yosuke)
-  - [N2]:[Yoko](https://mydramalist.com/people/830-kimura-tae)
-  - [N3]:[Haru](https://mydramalist.com/people/582-kaku-kento)
-  - [N4]:[Gaku](https://mydramalist.com/people/1264-kora-kengo)
-  - [N5]:[Karen](https://mydramalist.com/people/12670-yoshioka-riho)
+[Souchi](https://mydramalist.com/people/681-eguchi-yosuke)
+[Yoko](https://mydramalist.com/people/830-kimura-tae)
+[Haru](https://mydramalist.com/people/582-kaku-kento)
+[Gaku](https://mydramalist.com/people/1264-kora-kengo)
+[Karen](https://mydramalist.com/people/12670-yoshioka-riho)
 
 ---
 
